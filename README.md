@@ -1,29 +1,51 @@
------------------------------------------------------------
+# hi
 
-ri or kat. ↓16. i go by he/her pronouns. hk + au. unlabelled 
+hello, i'm kat or you can call me rin. 
 
-**please tell me if you need tone tags**. 
+they/he/she pronouns. unlabeled. 🇭🇰🇦🇺
+
+------
+
+## interests
+
+my interests include
+
+- **proseka**
+- *gi*
+- *osu*
+- **cytus** (ii) + more
+
+
+##### bold = main interests
+
+##### *italicized* = losing interest
+
+----------------------------------
+
+## criteria
+
+byi 
+
+- don't dm me on an alternative account if i block you
+- please tell me if you use tone tags
+- if i say anything wrong please tell me nicely so i can correct myself. 
+  ( chances are I wasn't educated enough or didn't know ⤴ )
+  
+
+dni
+
+- you fit the [basic dni](https://basic-dni.crd.co/) criteria 
+- say “loli”
+- actively sexualize minors
 
 ----------------------------------
 
 
-| **BYi** | **before you interact** |
-| --- | ------------------- |
-|     | don't dm me on an alternative account if i block you |
-|     | all ilys → platonic |
-|     | i don’t like kys / your mom / deez nuts jokes |
-|     |                                               |
-| **DNi** | **do not interact if** |
-|     | you fit [basic dni](https://basic-dni.crd.co/) criteria |
-|     | toxic/rude |
-|     | NSFW |
+## notes & links 
 
-----------------------------------
+[instagram](https://www.instagram.com/kaoutive/). [twitter](https://twitter.com/pewkh). discord: **Katze#2379**
 
-
-## note 
-
-∙ i block people if i feel uncomfortable or dislike their content
+i block if i feel uncomfortable or dislike you
 
 
 -----------------------------------
