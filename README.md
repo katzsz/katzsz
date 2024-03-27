@@ -14,8 +14,6 @@ for bts **민윤기**, zb1 **한유진**
 others ☆ be direct if theres any kind of issue! - i'll just block if i don't like you or we don't get along
 ***
 
-![kiki](https://pixels.crd.co/assets/images/gallery61/63ae7e67.gif?v=379361a4) **byf** SHE/HER im not interested in a relationship plz flirt with me unless youre emma 🙏
-
 ![lala](https://pixels.crd.co/assets/images/gallery01/bbef94f7.gif?v=379361a4) **dni** we don't share interest/have anything in common, under 13, blinks, ot6 briize
 
 ![heheh](https://pixels.crd.co/assets/images/gallery41/31fe5481.gif?v=379361a4) groups i like: enhypen riize tws nwjns myteen txt
