@@ -1,13 +1,17 @@
-# katze
-she her
-***
-for bts **민윤기** & zb1 **한유진**
-
-
-![melo](https://pixels.crd.co/assets/images/gallery15/ce8871cc.gif?v=379361a4) army zerose onedoor myday
+# katze~ ![bunny](https://pixels.crd.co/assets/images/gallery42/f3775c51.gif?v=379361a4)
+she her hkt, en/中文
 
 ***
 
-![lala](https://pixels.crd.co/assets/images/gallery01/bbef94f7.gif?v=379361a4) **extra** be direct if theres any kind of issue - i'll just block if i don't like you or we don't get along lol~
 
-![heheh](https://pixels.crd.co/assets/images/gallery41/31fe5481.gif?v=379361a4) i luv emma
+這世界好紛擾 我想念防彈少年團 
+[springday](https://www.youtube.com/watch?v=xEeFrLSkMm8)
+
+
+![pompom](https://pixels.crd.co/assets/images/gallery14/62155dc1.gif?v=379361a4) - army zerose onedoor myday
+
+[inx](https://www.instagram.com/kakatze/)
+
+***
+
+*𝑒*
