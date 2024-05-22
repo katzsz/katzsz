@@ -5,7 +5,6 @@ she ♯ her hkt, en/中文
 
 
 這世界好紛擾 我想念防彈少年團 
-[springday](https://www.youtube.com/watch?v=xEeFrLSkMm8)
 
 
 ![pompom](https://pixels.crd.co/assets/images/gallery14/62155dc1.gif?v=379361a4) - army zerose onedoor myday
