@@ -9,7 +9,6 @@ she ♯ her hkt, en/中文
 
 ![pompom](https://pixels.crd.co/assets/images/gallery14/62155dc1.gif?v=379361a4) - army zerose onedoor myday
 
-[inx](https://www.instagram.com/kakatze/)
 
 ***
 
