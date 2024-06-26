@@ -7,9 +7,17 @@ she ♯ her hkt, en/中文
 這世界好紛擾 我想念防彈少年團 
 
 
-![lol](https://yokai.crd.co/assets/images/gallery13/0c977ae6.gif?v=b4df531c) __groups__ army ze_rose onedoor myday light
+***
 
-![lol2](https://yokai.crd.co/assets/images/gallery03/84cdeaba.gif?v=b4df531c) __bias__ yoongi yujin leehan youngk dongwoon
+
+__groups__ ![lol](https://yokai.crd.co/assets/images/gallery13/0c977ae6.gif?v=b4df531c) army ze_rose onedoor myday light
+
+__bias__ ![lol2](https://yokai.crd.co/assets/images/gallery03/84cdeaba.gif?v=b4df531c) yoongi yujin leehan youngk dongwoon
+
+
+***
+
+> ![wing1](https://yokai.crd.co/assets/images/gallery03/4246c620.gif?v=b4df531c)     saw zb1 & day6 240331 ![wing2](https://yokai.crd.co/assets/images/gallery03/58ed5769.gif?v=b4df531c)
 
 
 ***
