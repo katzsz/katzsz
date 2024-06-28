@@ -21,7 +21,7 @@
 
 #### Now Playing . . . 
 
-`People Pt.2` by `Agust D`     `♥︎`
+`People Pt.2` by `Agust D`  ┊   `♥︎`
 
 ##### 0:43 ━━❍─────── 3:34  ↻     ⊲  Ⅱ  ⊳     ↺
 
