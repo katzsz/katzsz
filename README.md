@@ -5,7 +5,7 @@
 ***
 
 
-##### __groups__ ![lol](https://yokai.crd.co/assets/images/gallery13/0c977ae6.gif?v=b4df531c) army ze_rose onedoor myday light
+##### __ult__ ![lol](https://yokai.crd.co/assets/images/gallery13/0c977ae6.gif?v=b4df531c) army ze_rose
 
 ##### __luv luv luv__  . . .  ![lol2](https://yokai.crd.co/assets/images/gallery10/0ef4b45d.gif?v=b4df531c) 윤기 & 유진
 
